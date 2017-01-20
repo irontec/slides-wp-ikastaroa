@@ -1,0 +1,1 @@
+## Oinarrizko ezarpenak
